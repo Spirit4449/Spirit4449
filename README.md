@@ -1,5 +1,6 @@
-- 👋 Hi, I’m @Spirit4449
-- 👀 I’m interested in coding and developing
+- 👋 Hi, I’m known as Spirit (Real name is a secret)
+- 👀 I like coding and programming. I taught myself how to code in a few languages, and it has been really fun.
+- 🏓 Other hobies include: editing, gaming, and engineering. 
 - 📫 How to reach me .. discord https://discord.com/users/786285152493633577
 
 <!---
