@@ -1,6 +1,6 @@
-- 👋 Hi, I’m known as Spirit (Real name is a secret)
+- 👋 Hi, I’m known as Spirit. That's just the username I use online
 - 👀 I like coding and programming. I taught myself how to code in a few languages, and it has been really fun.
-- 🏓 Other hobies include: editing, gaming, and engineering. 
+- 🏓 Other hobies include: photo editing, gaming, and engineering. 
 - 📫 How to reach me .. discord https://discord.com/users/786285152493633577
 
 <!---
